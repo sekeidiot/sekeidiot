@@ -2,7 +2,7 @@
 <p align="center"> <img src="https://files.catbox.moe/0rlpuw.jpeg"/> </p>
 
 <p align="center">
-rentry wip currently 
+read rentry byi ... like the layout?
 <br>
 whats up greg it's kaja here
 <br>
